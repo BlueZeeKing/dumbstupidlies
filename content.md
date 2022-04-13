@@ -9,3 +9,7 @@ On the night of your fifteenth birthday, if you walk outside and stand in the mo
 ## Lie 3
 
 Softball coaches always say that you have to move to the ball so it stays in front of you. If it hits you, no worries! It doesn't even hurt. THIS IS A LIE!! You might just get hit. And it will hurt very, very, much. Matter of fact why is the sport even called softball? There is nothing soft about the ball.
+
+## Lie 4
+
+Dresses! Many people think they look lovely, but today you will learn the truth! Dresses are actually evil monsters. To you, your apperance seems lovely. But to everyone else you look hideous! The dress makes you hear conpliments but really people are insulting you. Never wear a dress again!
