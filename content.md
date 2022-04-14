@@ -12,4 +12,8 @@ Softball coaches always say that you have to move to the ball so it stays in fro
 
 ## Lie 4
 
-Dresses! Many people think they look lovely, but today you will learn the truth! Dresses are actually evil monsters. To you, your apperance seems lovely. But to everyone else you look hideous! The dress makes you hear conpliments but really people are insulting you. Never wear a dress again!
+Dresses! Many people think they look lovely, but today you will learn the truth! Dresses are actually evil monsters. To you, your appearance seems lovely. But to everyone else you look hideous! The dress makes you hear compliments but really people are insulting you. Never wear a dress again!
+
+## Lie 5
+
+If a polar bear bites you on a new moon, you get an incurable disease called *Dumb Stupid Lie Disease*. There is no cure and will never go away. It causes no other symptoms except if you go into an environment above 50 degrees you immediately die, unless you wear a wetsuit for at least 72 hours before going into the room. You must also wear a tinfoil hat for a week.
